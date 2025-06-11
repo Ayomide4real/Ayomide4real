@@ -33,7 +33,7 @@ I'm **AbdulQudus Ayomide Abdulkareem**, a passionate and detail-oriented **Softw
 ## 🤝 Let's Connect
 
 - 💼 [LinkedIn](https://linkedin.com/in/ayomide4real)
-- 🐦 [Twitter / X](https://twitter.com/ayomide4real)
+- 🐦 [Twitter / X](https://x.com/ayomide97531123?t=tE5jeJlqGvjG_gxV6naRkA&s=09)
 - 📫 Reach me: abdulkareem4ayomide18@gmail.com
 
 ---
